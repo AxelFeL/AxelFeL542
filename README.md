@@ -1,3 +1,5 @@
-Hi, I'am AxelFeL
+Hi, I'm AxelFeL
 This is my github account
-Awokawoakwowkwk
+On this, i will upload my pocketmine-mp plugins
+
+©® AxelFeL542
